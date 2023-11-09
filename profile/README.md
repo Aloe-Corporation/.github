@@ -1,0 +1,1 @@
+![Aloe](../assets/logo.jpg)
