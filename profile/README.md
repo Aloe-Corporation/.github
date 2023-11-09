@@ -1,4 +1,4 @@
-![Aloe](https://i.ibb.co/4pgWL25/Logo-02.jpg)
+![Aloe](https://i.ibb.co/gMDk21b/7-CE8-BEA0-0-F15-493-D-906-C-AF969-BB08-F23-1-201-a.jpg)
 
 # Welcome
 
