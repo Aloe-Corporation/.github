@@ -1,4 +1,4 @@
-![Aloe](../assets/logo.jpg)
+![Aloe](https://i.ibb.co/4pgWL25/Logo-02.jpg)
 
 # Welcome
 
